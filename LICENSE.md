@@ -1,4 +1,4 @@
-
+Get the ultimate Things 3 for macOS automation with exclusive Things 3 for macOS Automation | calendar integration + focus mode. Featuring calendar integration and focus mode,
 
 
 
